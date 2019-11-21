@@ -1,5 +1,5 @@
 <?xml version="1.0" encoding="utf-8"?>
-<feed xmlns="http://www.w3.org/2005/Atom"><title>Farmadeus - logs</title><link href="https://farmadeus.com/" rel="alternate"></link><link href="https://farmadeus.com/feeds/logs.atom.xml" rel="self"></link><id>https://farmadeus.com/</id><updated>2019-11-21T00:00:00+00:00</updated><entry><title>Farm Log 2019</title><link href="https://farmadeus.com/farm-log-2019.html" rel="alternate"></link><published>2019-11-17T00:00:00+00:00</published><updated>2019-11-21T00:00:00+00:00</updated><author><name>Ben Hanna</name></author><id>tag:farmadeus.com,2019-11-17:/farm-log-2019.html</id><summary type="html">&lt;h3&gt;November 21, 2019&lt;/h3&gt;
+<feed xmlns="http://www.w3.org/2005/Atom"><title>Farmadeus - Logs</title><link href="https://farmadeus.com/" rel="alternate"></link><link href="https://farmadeus.com/feeds/logs.atom.xml" rel="self"></link><id>https://farmadeus.com/</id><updated>2019-11-21T00:00:00+00:00</updated><entry><title>Farm Log 2019</title><link href="https://farmadeus.com/farm-log-2019.html" rel="alternate"></link><published>2019-11-17T00:00:00+00:00</published><updated>2019-11-21T00:00:00+00:00</updated><author><name>Ben Hanna</name></author><id>tag:farmadeus.com,2019-11-17:/farm-log-2019.html</id><summary type="html">&lt;h3&gt;November 21, 2019&lt;/h3&gt;
 &lt;p&gt;Planted 11 Shagbark Hickory seeds in air prune bed that was planted with American Hazelnut on November 10, 2019. Covered with straw mulch.&lt;/p&gt;
 &lt;p&gt;Removed Antonovka Apple and Siberian Crab Apple from soaking and placed in refrigerator. Packed in moist paper towel due to small seed size.&lt;/p&gt;
 &lt;h3&gt;November …&lt;/h3&gt;</summary><content type="html">&lt;h3&gt;November 21, 2019&lt;/h3&gt;
@@ -44,4 +44,4 @@
 &lt;/tbody&gt;
 &lt;/table&gt;
 &lt;h3&gt;August 26, 2019&lt;/h3&gt;
-&lt;p&gt;Cherry tomatoes have started ripening.&lt;/p&gt;</content><category term="logs"></category></entry></feed>
+&lt;p&gt;Cherry tomatoes have started ripening.&lt;/p&gt;</content><category term="Logs"></category></entry></feed>
