@@ -10,14 +10,14 @@ Capped air prune beds (A, B) with hardware mesh to prevent birds and rodents fro
 ---
 
 ### November 20, 2019
-Planted 11 Shagbark Hickory seeds in air prune bed that was planted with American Hazelnut on November 10, 2019. Covered with straw mulch.
+Planted 11 Shagbark Hickory seeds in air prune bed (A) that was planted with American Hazelnut on November 10, 2019. Covered with straw mulch.
 
 Removed Antonovka Apple and Siberian Crab Apple from soaking and placed in refrigerator. Packed in moist paper towel due to small seed size.
 
 ---
 
 ### November 19, 2019
-Planted air prune bed and covered with straw.
+Planted air prune bed (B) and covered with straw.
 
 Crop | Seed Count
 --- | ---
@@ -39,7 +39,7 @@ Stored 15 Dunstan Chestnuts seed in refrigerator. Packed in peat moss.
 ---
 
 ### November 10, 2019
-Scarified 20 American Hazelnuts with sandpaper and scored lightly with a knife. Planted in air prune bed and covered with straw mulch. 
+Scarified 20 American Hazelnuts with sandpaper and scored lightly with a knife. Planted in air prune bed (A) and covered with straw mulch. 
 
 ---
 
