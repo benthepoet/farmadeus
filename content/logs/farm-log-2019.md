@@ -60,14 +60,14 @@ Cherry tomatoes have started ripening.
 ### August 25, 2019
 Planted Autumn Magic Aronia Berry (1) and Viking Aronia Berry (2).
 
-<svg width="400" height="300" viewBox="0 0 400 300" xmlns="http://www.w3.org/2000/svg">
+<svg viewBox="120 20 280 200" xmlns="http://www.w3.org/2000/svg">
     <text x="180" y="50">4</text>
     <text x="200" y="60">1</text>
     <text x="300" y="200">2</text>
     <text x="320" y="190">3</text>
     <text x="250" y="120">5</text>
     <text x="310" y="110">6</text>
-</svg
+</svg>
 
 ---
 
