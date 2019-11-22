@@ -5,6 +5,11 @@ Category: Logs
 Authors: Ben Hanna
 
 ### November 21, 2019
+Capped air prune beds (A, B) with hardware mesh to prevent birds and rodents from stealing seeds.
+
+---
+
+### November 20, 2019
 Planted 11 Shagbark Hickory seeds in air prune bed that was planted with American Hazelnut on November 10, 2019. Covered with straw mulch.
 
 Removed Antonovka Apple and Siberian Crab Apple from soaking and placed in refrigerator. Packed in moist paper towel due to small seed size.
@@ -12,14 +17,14 @@ Removed Antonovka Apple and Siberian Crab Apple from soaking and placed in refri
 ---
 
 ### November 19, 2019
-Planted air prune bed longways as follows.
+Planted air prune bed and covered with straw.
 
-* 10 American Plum
-* 15 - 20 Ranetka Apple
-* 10 - 15 ECOS Pear
-* 25 Americana Dunbars Plum
-
-Covered with straw mulch.
+Crop | Seed Count
+--- | ---
+American Plum | 10
+Ranetka Apple | 15 - 20
+ECOS Pear | 10 - 15
+Americana Dunbars Plum | 25
 
 ---
 
@@ -49,3 +54,27 @@ Potatoes (Reba, Red Nordland, Purple Viking) | 9lb
 
 ### August 26, 2019
 Cherry tomatoes have started ripening.
+
+---
+
+### August 25, 2019
+Planted Autumn Magic Aronia Berry (1) and Viking Aronia Berry (2).
+
+<svg width="400" height="300" viewBox="0 0 400 300" xmlns="http://www.w3.org/2000/svg">
+    <text x="180" y="50">4</text>
+    <text x="200" y="60">1</text>
+    <text x="300" y="200">2</text>
+    <text x="320" y="190">3</text>
+    <text x="250" y="120">5</text>
+    <text x="310" y="110">6</text>
+</svg
+
+---
+
+### May 11, 2019
+Planted Keewenaw Serviceberry (1), Wild Goose Plums (2), and Hughes Apple Crab (3).
+
+---
+
+### May 9, 2019
+Planted rhubarb.
