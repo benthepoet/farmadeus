@@ -4,6 +4,12 @@ Modified: 2019-11-21
 Category: Logs
 Authors: Ben Hanna
 
+### November 23, 2019
+Air prune beds A (left) and B (right).
+<img src="/images/farm-log-2019-11-23-00.jpg" width="100%" />
+
+---
+
 ### November 21, 2019
 Capped air prune beds (A, B) with hardware mesh to prevent birds and rodents from stealing seeds.
 

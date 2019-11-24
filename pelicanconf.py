@@ -31,7 +31,8 @@ DEFAULT_PAGINATION = 10
 
 #Static
 STATIC_PATHS = [
-    'extra'
+    'extra',
+    'images'
 ]
 
 EXTRA_PATH_METADATA = {
