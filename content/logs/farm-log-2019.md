@@ -4,6 +4,12 @@ Modified: 2019-11-21
 Category: Logs
 Authors: Ben Hanna
 
+### November 24, 2019
+Planted Sargent's Crab Apple (upper right row), Various Apple (upper left row), ECOS Pear (lower row, right side), and Various Asian Pear (lower row, left side).
+<img src="/images/farm-log-2019-11-24-00.jpg" width="100%" />
+
+---
+
 ### November 23, 2019
 Air prune beds A (left) and B (right).
 <img src="/images/farm-log-2019-11-23-00.jpg" width="100%" />
