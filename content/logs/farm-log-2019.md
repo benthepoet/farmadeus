@@ -15,6 +15,8 @@ Looking at early spring bulb flowers for support around fruit trees.
 
 Strawberries appear to be a good groundcover for sunny edges of the food forest.
 
+---
+
 ### November 26, 2019
 Looking at potential perennial herbs to introduce to the landscape in the new year.
 
