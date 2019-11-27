@@ -1,8 +1,19 @@
 Title: Farm Log 2019
 Date: 2019-11-17
-Modified: 2019-11-21
+Modified: 2019-11-27
 Category: Logs
 Authors: Ben Hanna
+
+### November 27, 2019
+Looking at early spring bulb flowers for support around fruit trees.
+
+* Danford Iris
+* Early Daffodil
+* Siberian Squill
+* Snowdrop
+* Winter Aconite
+
+Strawberries appear to be a good groundcover for sunny edges of the food forest.
 
 ### November 26, 2019
 Looking at potential perennial herbs to introduce to the landscape in the new year.
