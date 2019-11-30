@@ -4,6 +4,12 @@ Modified: 2019-11-27
 Category: Logs
 Authors: Ben Hanna
 
+### November 29, 2019
+Garlic cloves are a bit exposed, covered with a layer of leaves. Lightly pulled on a
+couple cloves and they appear to be well rooted.
+
+---
+
 ### November 27, 2019
 Looking at early spring bulb flowers for support around fruit trees.
 
