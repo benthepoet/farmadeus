@@ -14,6 +14,8 @@ Looking at introducing a couple more plants in the new year.
 I recall seeing a large-leaved plant back in our forest at one point that I now believe 
 may be Burdock. Will verify in the spring/summer if we already have this vegetable growing wild.
 
+---
+
 ### November 29, 2019
 Garlic cloves are a bit exposed, covered with a layer of leaves. Lightly pulled on a
 couple cloves and they appear to be well rooted.
