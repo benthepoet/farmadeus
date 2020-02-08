@@ -4,6 +4,11 @@ Modified: 2020-01-26
 Category: Logs
 Authors: Ben Hanna
 
+### February 8, 2020
+Checked on the apple seeds in the refrigerator. Planted five Siberian Crab Apple seeds that had sprouted.
+
+---
+
 ### January 26, 2020
 The Dunstan Chestnuts have begun to sprout in the refrigerator. One was compromised by mold. Pulled 
 two out and planted in containers.
