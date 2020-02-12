@@ -85,7 +85,7 @@ Americana Dunbars Plum | 25
 ---
 
 ### November 17, 2019
-Started soaking 10 Antonovka Apple seeds and 12 Siberian Crab Apple seeds for scarification.
+Started soaking 10 Antonovka Apple seeds and 12 Siberian Crab Apple seeds for stratification.
 
 ---
 

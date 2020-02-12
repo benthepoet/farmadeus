@@ -4,6 +4,15 @@ Modified: 2020-01-26
 Category: Logs
 Authors: Ben Hanna
 
+### February 11, 2020
+Siberian Crab Apple seedlings have started emerging.
+<img src="/images/farm-log-2020-02-11-00.jpg" width="100%" />
+
+Removed five Anatovka Apple seeds from refrigerator and planted in a can. Placed 50 Hardy Kiwi, 25 Juneberry, 
+and 25 Saskatoon seeds in the refrigerator for stratification.
+
+---
+
 ### February 8, 2020
 Checked on the apple seeds in the refrigerator. Planted five Siberian Crab Apple seeds that had sprouted.
 
