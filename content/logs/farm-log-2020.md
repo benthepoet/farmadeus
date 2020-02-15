@@ -4,6 +4,16 @@ Modified: 2020-01-26
 Category: Logs
 Authors: Ben Hanna
 
+### February 15, 2020
+Removed the remaining 9 Dunstan Chestnut seeds from the refrigerator and planted in 
+cups.
+<img src="/images/farm-log-2020-02-15-00.jpg" width="100%" />
+
+Placed 10 American Persimmon and 29 Americana Dunbars Plum seeds in the refrigerator for 
+stratification.
+
+---
+
 ### February 11, 2020
 Siberian Crab Apple seedlings have started emerging.
 <img src="/images/farm-log-2020-02-11-00.jpg" width="100%" />
