@@ -1,8 +1,14 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-01-26
+Modified: 2020-02-16
 Category: Logs
 Authors: Ben Hanna
+
+### February 16, 2020
+Removed the remaining 5 Anatovka Apple and 6 Siberian Crab Apple seeds from the refrigerator 
+and planted in a can.
+
+---
 
 ### February 15, 2020
 Removed the remaining 9 Dunstan Chestnut seeds from the refrigerator and planted in 
