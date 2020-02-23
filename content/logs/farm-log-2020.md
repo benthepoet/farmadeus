@@ -1,8 +1,20 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-02-16
+Modified: 2020-02-23
 Category: Logs
 Authors: Ben Hanna
+
+### February 23, 2020
+Placed Sea Berry and Lingonberry seeds in the refrigerator for stratification. The first 
+two Dunstan Chestnut seedlings are starting to leaf out.
+
+<img src="/images/farm-log-2020-02-23-00.jpg" width="100%" />
+
+The Siberian Crab Apple seedlings have started sending out their first true leaves.
+
+<img src="/images/farm-log-2020-02-23-01.jpg" width="100%" />
+
+---
 
 ### February 16, 2020
 Removed the remaining 5 Anatovka Apple and 6 Siberian Crab Apple seeds from the refrigerator 
