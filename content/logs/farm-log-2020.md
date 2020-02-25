@@ -1,8 +1,13 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-02-23
+Modified: 2020-02-24
 Category: Logs
 Authors: Ben Hanna
+
+### February 24, 2020
+Placed 15 Winter Gold Crab Apple seeds in the refrigerator for stratification.
+
+---
 
 ### February 23, 2020
 Placed Sea Berry and Lingonberry seeds in the refrigerator for stratification. The first 
