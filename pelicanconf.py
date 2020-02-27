@@ -25,7 +25,7 @@ LINKS = (('Pelican', 'http://getpelican.com/'),
          ('Jinja2', 'http://jinja.pocoo.org/'),)
 
 # Social widget
-SOCIAL = ()
+SOCIAL = (('YouTube', 'https://www.youtube.com/user/benthepoet'),)
 
 DEFAULT_PAGINATION = 10
 
