@@ -1,8 +1,13 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-02-24
+Modified: 2020-02-28
 Category: Logs
 Authors: Ben Hanna
+
+### February 28, 2020
+Planted around 10 Hyssop seeds in a can.
+
+---
 
 ### February 24, 2020
 Placed 15 Winter Gold Crab Apple seeds in the refrigerator for stratification.
