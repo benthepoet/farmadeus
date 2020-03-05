@@ -1,8 +1,14 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-02-28
+Modified: 2020-03-05
 Category: Logs
 Authors: Ben Hanna
+
+### March 5, 2020
+Hyssop seeds have started sprouting. Placed 30 Sargent's Crab Apple and 10 Spice Bush 
+seeds in the refrigerator for stratification.
+
+---
 
 ### February 28, 2020
 Planted around 10 Hyssop seeds in a can.
