@@ -21,7 +21,7 @@ Placed 15 Winter Gold Crab Apple seeds in the refrigerator for stratification.
 ---
 
 ### February 23, 2020
-Placed Sea Berry and Lingonberry seeds in the refrigerator for stratification. The first 
+Placed Seaberry and Lingonberry seeds in the refrigerator for stratification. The first 
 two Dunstan Chestnut seedlings are starting to leaf out.
 
 <img src="/images/farm-log-2020-02-23-00.jpg" width="100%" />
