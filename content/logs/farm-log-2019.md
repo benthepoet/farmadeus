@@ -49,7 +49,7 @@ Looking at potential perennial herbs to introduce to the landscape in the new ye
 ---
 
 ### November 24, 2019
-Planted Sargent's Crab Apple (upper right row), Various Apple (upper left row), ECOS Pear (lower row, right side), and Various Asian Pear (lower row, left side).
+Planted Sargent Crabapple (upper right row), Various Apple (upper left row), ECOS Pear (lower row, right side), and Various Asian Pear (lower row, left side).
 <img src="/images/farm-log-2019-11-24-00.jpg" width="100%" />
 
 ---
@@ -68,7 +68,7 @@ Capped air prune beds (A, B) with hardware mesh to prevent birds and rodents fro
 ### November 20, 2019
 Planted 11 Shagbark Hickory seeds in air prune bed (A) that was planted with American Hazelnut on November 10, 2019. Covered with straw mulch.
 
-Removed Antonovka Apple and Siberian Crab Apple from soaking and placed in refrigerator. Packed in moist paper towel due to small seed size.
+Removed Antonovka Apple and Siberian Crabapple from soaking and placed in refrigerator. Packed in moist paper towel due to small seed size.
 
 ---
 
@@ -85,7 +85,7 @@ Americana Dunbars Plum | 25
 ---
 
 ### November 17, 2019
-Started soaking 10 Antonovka Apple seeds and 12 Siberian Crab Apple seeds for stratification.
+Started soaking 10 Antonovka Apple seeds and 12 Siberian Crabapple seeds for stratification.
 
 ---
 

@@ -5,26 +5,34 @@ Category: Logs
 Authors: Ben Hanna
 
 ### March 7, 2020
-Placed 27 Hybrid Siberian Crab Apple (*Malus robusta*) in the refrigerator for 
-stratification. Based on research this variety is a cross between Siberian Crab Apple (*Malus baccata*) 
-and Plumleaf Crab Apple (*Malus prunifolia*). One source says the common name is Cherry Crab Apple, that's 
+Placed 27 Hybrid Siberian Crabapple (*Malus robusta*) seeds in the refrigerator for 
+stratification. Based on research this variety is a cross between Siberian Crabapple (*Malus baccata*) 
+and Plumleaf Crabapple (*Malus prunifolia*). One source says the common name is Cherry Crabapple, that's 
 what I'll likely refer to it as going forward.
+
+Progress on the can with Antonovka Apple and Siberian Crabapple.
+
+<img src="/images/farm-log-2020-03-07-00.jpg" width="100%" />
+
+Progress on the can with Siberian Crabapple, there's five seedlings but one looks like it may not make it.
+
+<img src="/images/farm-log-2020-03-07-01.jpg" width="100%" />
 
 ---
 
 ### March 5, 2020
-Hyssop seeds have started sprouting. Placed 30 Sargent's Crab Apple and 10 Spice Bush 
+Blue Hyssop seeds have started sprouting. Placed 30 Sargent Crabapple and 10 Spice Bush 
 seeds in the refrigerator for stratification.
 
 ---
 
 ### February 28, 2020
-Planted around 10 Hyssop seeds in a can.
+Planted around 10 Blue Hyssop seeds in a can.
 
 ---
 
 ### February 24, 2020
-Placed 15 Winter Gold Crab Apple seeds in the refrigerator for stratification.
+Placed 15 Winter Gold Crabapple seeds in the refrigerator for stratification.
 
 ---
 
@@ -34,14 +42,14 @@ two Dunstan Chestnut seedlings are starting to leaf out.
 
 <img src="/images/farm-log-2020-02-23-00.jpg" width="100%" />
 
-The Siberian Crab Apple seedlings have started sending out their first true leaves.
+The Siberian Crabapple seedlings have started sending out their first true leaves.
 
 <img src="/images/farm-log-2020-02-23-01.jpg" width="100%" />
 
 ---
 
 ### February 16, 2020
-Removed the remaining 5 Antonovka Apple and 6 Siberian Crab Apple seeds from the refrigerator 
+Removed the remaining 5 Antonovka Apple and 6 Siberian Crabapple seeds from the refrigerator 
 and planted in a can.
 
 ---
@@ -57,7 +65,7 @@ stratification.
 ---
 
 ### February 11, 2020
-Siberian Crab Apple seedlings have started emerging.
+Siberian Crabapple seedlings have started emerging.
 <img src="/images/farm-log-2020-02-11-00.jpg" width="100%" />
 
 Removed five Antonovka Apple seeds from refrigerator and planted in a can. Placed 50 Hardy Kiwi, 25 Juneberry, 
@@ -66,7 +74,7 @@ and 25 Saskatoon seeds in the refrigerator for stratification.
 ---
 
 ### February 8, 2020
-Checked on the apple seeds in the refrigerator. Planted five Siberian Crab Apple seeds that had sprouted.
+Checked on the apple seeds in the refrigerator. Planted five Siberian Crabapple seeds that had sprouted.
 
 ---
 
