@@ -1,8 +1,16 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-05
+Modified: 2020-03-07
 Category: Logs
 Authors: Ben Hanna
+
+### March 7, 2020
+Placed 27 Hybrid Siberian Crab Apple (*Malus robusta*) in the refrigerator for 
+stratification. Based on research this variety is a cross between Siberian Crab Apple (*Malus baccata*) 
+and Plumleaf Crab Apple (*Malus prunifolia*). One source says the common name is Cherry Crab Apple, that's 
+what I'll likely refer to it as going forward.
+
+---
 
 ### March 5, 2020
 Hyssop seeds have started sprouting. Placed 30 Sargent's Crab Apple and 10 Spice Bush 
