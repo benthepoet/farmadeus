@@ -1,8 +1,13 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-07
+Modified: 2020-03-15
 Category: Logs
 Authors: Ben Hanna
+
+### March 15, 2020
+Placed Arctic Beauty Kiwi (*Actinidia kolomikta*) seeds in the refrigerator for stratification.
+
+---
 
 ### March 7, 2020
 Placed 27 Hybrid Siberian Crabapple (*Malus robusta*) seeds in the refrigerator for 
