@@ -7,6 +7,21 @@ Authors: Ben Hanna
 ### March 15, 2020
 Placed Arctic Beauty Kiwi (*Actinidia kolomikta*) seeds in the refrigerator for stratification.
 
+Checked on the food forest and several trees were damaged by voles over the winter.
+
+The Methley Plum has been completely girdled. The best thing I can do is try and root as many cuttings 
+as I can get off the tree.
+
+<img src="/images/farm-log-2020-03-15-00.jpg" width="100%" />
+
+The Northern Prairie Apricot was completely debarked. This plant still has a good root system and 
+has regrown vigorously after being cut down by deer a couple years ago.
+
+<img src="/images/farm-log-2020-03-15-01.jpg" width="100%" />
+
+The Bartlett Pear, Superior Plum and the Toka Plum were also damaged but I believe these trees may be able 
+to heal and survive.
+
 ---
 
 ### March 7, 2020
