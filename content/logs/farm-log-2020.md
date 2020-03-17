@@ -1,8 +1,21 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-15
+Modified: 2020-03-16
 Category: Logs
 Authors: Ben Hanna
+
+### March 16, 2020
+Salvaged 12 cuttings from the Methley Plum and planted in a container to see if they'll root. 
+Only about 5 - 6 are good hardwood cuttings so realistically I'm expecting to get maybe 2 or 3 successful plants.
+
+<img src="/images/farm-log-2020-03-16-00.jpg" width="100%" />
+
+I cut the lower ends of the cuttings at a 45 degree angle to increase the surface area. The ends were then dipped 
+in rooting hormone and placed into potting mix. Placed a ziplock bag over the cuttings to maintain a high humidity level.
+
+<img src="/images/farm-log-2020-03-16-01.jpg" width="100%" />
+
+---
 
 ### March 15, 2020
 Placed Arctic Beauty Kiwi (*Actinidia kolomikta*) seeds in the refrigerator for stratification.
