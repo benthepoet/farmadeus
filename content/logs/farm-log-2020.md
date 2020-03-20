@@ -1,8 +1,14 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-16
+Modified: 2020-03-20
 Category: Logs
 Authors: Ben Hanna
+
+### March 20, 2020
+Started seeds today for Abe Lincoln Tomato, Black Krim Tomato, Black Vernissage Tomato, Chadwick's Cherry Tomato, 
+Pink Bumblebee Tomato, Tadorna Leek, and Lovage.
+
+---
 
 ### March 16, 2020
 Salvaged 12 cuttings from the Methley Plum and planted in a container to see if they'll root. 
