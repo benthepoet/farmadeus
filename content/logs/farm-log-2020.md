@@ -8,6 +8,8 @@ Authors: Ben Hanna
 Started seeds today for Abe Lincoln Tomato, Black Krim Tomato, Black Vernissage Tomato, Chadwick's Cherry Tomato, 
 Pink Bumblebee Tomato, Tadorna Leek, and Lovage.
 
+Planted some Russian Tarragon seeds in a can.
+
 ---
 
 ### March 16, 2020
