@@ -7,6 +7,13 @@ Authors: Ben Hanna
 ### March 22, 2020
 Started seeds today for Skirret and St. John's Wort.
 
+Pulled seed potatoes out of the 5-gallon bucket root cellar. Potatoes are in good condition, 
+don't see any that were compromised by mold or rot.
+
+<img src="/images/farm-log-2020-03-22-00.jpg" width="100%" />
+
+<img src="/images/farm-log-2020-03-22-01.jpg" width="100%" />
+
 ---
 
 ### March 20, 2020
