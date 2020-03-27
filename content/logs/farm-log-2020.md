@@ -1,8 +1,22 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-25
+Modified: 2020-03-27
 Category: Logs
 Authors: Ben Hanna
+
+### March 27, 2020
+Spread manure on our second potato bed today.
+
+Last fall I originally transplanted 4 Buartblack Walnut seedlings at the bottom of our 
+sloping hill. I believe I made a mistake in doing this, as it may create too much shade 
+on the hill and prevent us from successfully growing crops there. With that in mind I moved 
+2 of the seedlings up the hill to establish a canopy as far back as I can. The initial tree/shrub 
+layer in front of the Buartblack Walnut will consist of Americana Dunbars Plum and Chickasaw Plum.
+
+The two cages in the back of this photo are the Buartblack Walnut seedlings.
+<img src="/images/farm-log-2020-03-27-00.jpg" width="100%" />
+
+---
 
 ### March 25, 2020
 Hauled the first load of manure out of the chicken run and laid on top of a bed 
