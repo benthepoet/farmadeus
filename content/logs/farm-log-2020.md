@@ -5,7 +5,8 @@ Category: Logs
 Authors: Ben Hanna
 
 ### March 27, 2020
-Spread manure on our second potato bed today.
+Spread manure on our second potato bed today. Also shredded a load of leaves and placed that on 
+top of the manure layer.
 
 Last fall I originally transplanted 4 Buartblack Walnut seedlings at the bottom of our 
 sloping hill. I believe I made a mistake in doing this, as it may create too much shade 
@@ -14,7 +15,15 @@ on the hill and prevent us from successfully growing crops there. With that in m
 layer in front of the Buartblack Walnut will consist of Americana Dunbars Plum and Chickasaw Plum.
 
 The two cages in the back of this photo are the Buartblack Walnut seedlings.
+
 <img src="/images/farm-log-2020-03-27-00.jpg" width="100%" />
+
+Last summer I planted out 3 Caucasian Mountain Spinach (*Hablitzia Tamnoides*) seedlings. Two 
+I have seen any sign from yet, but my strongest seedling is already re-emerging and sending out 
+new shoots. It'll be nice to have a perennial spinach-like green without the fuss of starting 
+seeds every year.
+
+<img src="/images/farm-log-2020-03-27-01.jpg" width="100%" />
 
 ---
 
