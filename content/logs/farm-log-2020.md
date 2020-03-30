@@ -1,8 +1,43 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-27
+Modified: 2020-03-29
 Category: Logs
 Authors: Ben Hanna
+
+### March 29, 2020
+Replaced an old fence post that's about 4 - 5 years old. Lasted a good while considering 
+it's aspen and I didn't protect the bottom part of the post. The new post is red oak. I wrapped 
+black plastic around the base to keep the soil from making contact with wood at ground level. That's 
+the area where rot usually occurs.
+
+<img src="/images/farm-log-2020-03-29-00.jpg" width="100%" />
+
+Was able to locate the other 2 Caucasian Mountain Spinach seedlings. It looks like the Sea Kale seedlings 
+from last year survived. I found one that a fairly decent root developed and moved it into the corner of my 
+main asparagus bed.
+
+Dug out a large Comfrey plant from the bed where I usually grow peas. Broke the root apart and planted in various 
+areas.
+
+---
+
+### March 28, 2020
+Planted the 2 remaining Buartblack Walnut seedlings at the top of the hill. Moved a Chickasaw Plum 
+seedling so that it'll be a shrub layer in front of the Buartblack Walnut.
+
+Looking down from the upper part of the hill.
+
+<img src="/images/farm-log-2020-03-28-00.jpg" width="100%" />
+
+Shredded leaves to place on top of the second potato bed.
+
+<img src="/images/farm-log-2020-03-28-01.jpg" width="100%" />
+
+The Music Garlic has started poking through the mulch.
+
+<img src="/images/farm-log-2020-03-28-02.jpg" width="100%" />
+
+---
 
 ### March 27, 2020
 Spread manure on our second potato bed today. Also shredded a load of leaves and placed that on 
@@ -19,7 +54,7 @@ The two cages in the back of this photo are the Buartblack Walnut seedlings.
 <img src="/images/farm-log-2020-03-27-00.jpg" width="100%" />
 
 Last summer I planted out 3 Caucasian Mountain Spinach (*Hablitzia Tamnoides*) seedlings. Two 
-I have seen any sign from yet, but my strongest seedling is already re-emerging and sending out 
+I haven't seen any sign from yet, but my strongest seedling is already re-emerging and sending out 
 new shoots. It'll be nice to have a perennial spinach-like green without the fuss of starting 
 seeds every year.
 
