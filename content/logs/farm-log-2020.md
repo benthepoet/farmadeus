@@ -1,8 +1,15 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-29
+Modified: 2020-03-31
 Category: Logs
 Authors: Ben Hanna
+
+### March 31, 2020
+The Victoria Rhubarb the I planted last year is already starting to emerge.
+
+<img src="/images/farm-log-2020-03-31-00.jpg" width="100%" />
+
+---
 
 ### March 29, 2020
 Replaced an old fence post that's about 4 - 5 years old. Lasted a good while considering 
