@@ -1,11 +1,22 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-04
+Modified: 2020-04-05
 Category: Logs
 Authors: Ben Hanna
 
+### April 5, 2020
+Direct seeded Dwarf Sugar Ann Pea, Admiral Soup Peas, Windsor Fava Beans, Red Russian Kale, and 
+Half Gurnsey Parsnips.
+
+Located two more Sea Kale seedlings that survived the winter. Also started a planting box made from
+some Quaking Aspen that I milled during the winter. Seeded Scarlet Kale, Siber Frill Kale, and Thousand-Headed 
+Kale into the planting box. Placed the planting box in our makeshift coldframe, which is an old bathtub 
+with a patio window I place over it at night.
+
+---
+
 ### April 4, 2020
-Planted Green Beauty peas today. Cherry trees are getting close to leafing out, the Juliet 
+Planted Green Beauty Peas today. Cherry trees are getting close to leafing out, the Juliet 
 Cherries are the furthest along. I expect them to be the most vigorous growers in the food 
 forest this year.
 
