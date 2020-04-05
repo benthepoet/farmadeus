@@ -1,8 +1,27 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-03-31
+Modified: 2020-04-04
 Category: Logs
 Authors: Ben Hanna
+
+### April 4, 2020
+Planted Green Beauty peas today. Cherry trees are getting close to leafing out, the Juliet 
+Cherries are the furthest along. I expect them to be the most vigorous growers in the food 
+forest this year.
+
+---
+
+### April 2, 2020
+I noticed today that it looks like all the Turkish Rocket seedlings from last year have already 
+started coming up.
+
+<img src="/images/farm-log-2020-04-02-00.jpg" width="100%" />
+
+I've determined that Scarlet Kale is the most hardy variety of kale we've ever grown. The plants 
+from last year are already beginning to send out side shoots. Unlike the Thousand-Headed Kale, the stalks 
+of the Scarlet Kale survived the winter without hardly being scathed.
+
+---
 
 ### March 31, 2020
 The Victoria Rhubarb the I planted last year is already starting to emerge.
