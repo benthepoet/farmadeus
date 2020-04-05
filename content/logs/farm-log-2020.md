@@ -21,6 +21,8 @@ I've determined that Scarlet Kale is the most hardy variety of kale we've ever g
 from last year are already beginning to send out side shoots. Unlike the Thousand-Headed Kale, the stalks 
 of the Scarlet Kale survived the winter without hardly being scathed.
 
+The St. John's Wort has started sprouting.
+
 ---
 
 ### March 31, 2020
