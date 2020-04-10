@@ -1,8 +1,31 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-05
+Modified: 2020-04-09
 Category: Logs
 Authors: Ben Hanna
+
+### April 9, 2020
+Weather has been flip-flopping back and forth between rain and snow during the past week. Managed to get 
+outside yesterday and takes some pictures of how spring crops are progressing.
+
+Another welcome surprise, I wasn't expecting Good King Henry to emerge this early in spring.
+
+<img src="/images/farm-log-2020-04-09-00.jpg" width="100%" />
+
+Victoria Rhubarb starting to push out more leaves.
+
+<img src="/images/farm-log-2020-04-09-00.jpg" width="100%" />
+
+Turkish Rocket is one of the crops I'm most anxious to try as it's a perennial member of the *Brassica* family.
+
+<img src="/images/farm-log-2020-04-09-00.jpg" width="100%" />
+
+For some reason I thought Caucasian Mountain Spinach would be a little more frost intolerant but this cold weather 
+certainly isn't slowing it down.
+
+<img src="/images/farm-log-2020-04-09-00.jpg" width="100%" />
+
+---
 
 ### April 5, 2020
 Direct seeded Dwarf Sugar Ann Pea, Admiral Soup Peas, Windsor Fava Beans, Red Russian Kale, and 
