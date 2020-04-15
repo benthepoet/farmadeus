@@ -9,33 +9,41 @@ It was a sunny, windy, but mostly warm day today. Leaves were dry enough that I 
 able to shred a couple piles to fill half of a bed that was still uncovered.
 
 A couple of the Glaskins Rhubarb seedlings I started last year are beginning to come up.
+
 <img src="/images/farm-log-2020-04-11-00.jpg" width="100%" />
 
 Potato Onions have been staying strong with all the cold weather.
+
 <img src="/images/farm-log-2020-04-11-01.jpg" width="100%" />
 
 Won't be long before we'll be harvesting some Egyptian Walking Onions. These are always 
 my earliest onion in the spring.
+
 <img src="/images/farm-log-2020-04-11-02.jpg" width="100%" />
 
 Making an effort to utilize every available space inside and outside of the fenced garden 
 that I can. Finally put some logs to border the bed on the right hand side of this photo. We 
 planted our excess Green Beauty Pea and Admiral Soup Pea seeds in this bed.
+
 <img src="/images/farm-log-2020-04-11-03.jpg" width="100%" />
 
 This is our strongest Sea Kale seedling so far. I'm interested to see how well it does this 
 year. I recently purchased more Sea Kale seeds on eBay from seller in Canada.
+
 <img src="/images/farm-log-2020-04-11-04.jpg" width="100%" />
 
 We took the opportunity to make a quick and dirty cold frame today. Used some old scrap lumber and patio 
 windows that were left on the property from the previous owner.
+
 <img src="/images/farm-log-2020-04-11-05.jpg" width="100%" />
 
 After assembling the frame, I flipped all the sod over with a garden spade.
+
 <img src="/images/farm-log-2020-04-11-06.jpg" width="100%" />
 
 Raked out any significant clumps and then amended with some shredded leaves and chicken run material. We 
 wound up planting a mix of beets, carrots, kale, lettuce, and mustard greens in the bed.
+
 <img src="/images/farm-log-2020-04-11-07.jpg" width="100%" />
 
 ---
