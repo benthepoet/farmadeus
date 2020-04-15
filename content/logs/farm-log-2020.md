@@ -8,10 +8,10 @@ Authors: Ben Hanna
 It was a sunny, windy, but mostly warm day today. Leaves were dry enough that I was 
 able to shred a couple piles to fill half of a bed that was still uncovered.
 
-A couple of the Glaskins Rhubarb I started last year are beginning to come up.
+A couple of the Glaskins Rhubarb seedlings I started last year are beginning to come up.
 <img src="/images/farm-log-2020-04-11-00.jpg" width="100%" />
 
-Potato Onions have been staying with all the cold weather.
+Potato Onions have been staying strong with all the cold weather.
 <img src="/images/farm-log-2020-04-11-01.jpg" width="100%" />
 
 Won't be long before we'll be harvesting some Egyptian Walking Onions. These are always 
@@ -35,7 +35,7 @@ After assembling the frame, I flipped all the sod over with a garden spade.
 <img src="/images/farm-log-2020-04-11-06.jpg" width="100%" />
 
 Raked out any significant clumps and then amended with some shredded leaves and chicken run material. We 
-wound planting a mix of beets, carrots, kale, lettuce, and mustard greens in the bed.
+wound up planting a mix of beets, carrots, kale, lettuce, and mustard greens in the bed.
 <img src="/images/farm-log-2020-04-11-07.jpg" width="100%" />
 
 ---
