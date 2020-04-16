@@ -1,8 +1,50 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-11
+Modified: 2020-04-15
 Category: Logs
 Authors: Ben Hanna
+
+### April 15, 2020
+Cold frame reached a high of 81 degrees today without being vented. We put a heavy duty tarp over the 
+bed to prevent it from getting too cold at night. Maintained an overnight temperature of 32 degrees while outside 
+temperature was 17 degrees. Weather is supposed to start warming up this weekend, so hopefully we'll see kale 
+seedlings emerging sometime next week.
+
+---
+
+### April 14, 2020
+Started a tray of Early White Vienna Kohlrabi, Red Russian Kale, and Scarlet Kale today. I'm 
+making an aggressive effort to successfully grow Kohlrabi this year.
+
+<img src="/images/farm-log-2020-04-14-00.jpg" width="100%" />
+
+The Methley Plum cuttings are now 4 weeks in and leafing out. In another 4 weeks we should be 
+able to reduce the humidity and then check for root development. Hoping to get at least a 30% success rate 
+on this propagation.
+
+<img src="/images/farm-log-2020-04-14-01.jpg" width="100%" />
+
+Finally took the dome off the tray of Tomato, Lovage, and Tadorna Leek seedlings. The leaves of the tomatoes 
+are a little windburned from being outside the other day but they'll recover in no time.
+
+<img src="/images/farm-log-2020-04-14-02.jpg" width="100%" />
+
+Checked on the temperature of the cold frame to see how it's doing. Was at about 50 degrees midday while the outside 
+temperature was around 26 degrees. Overnight low so far is 27 degrees.
+
+<img src="/images/farm-log-2020-04-14-03.jpg" width="100%" />
+
+---
+
+### April 12, 2020
+Discovered today that I may have accidentally cut the good cane off of my Reliance Grape when I 
+was pruning the other week. The cutting was still green and not dried out so I snipped the ends, 
+dipped it in rooting hormone and placed it in a container with a plastic bag over it. Hopefully, it 
+may root and I'll get another grape vine out of it.
+
+<img src="/images/farm-log-2020-04-12-00.jpg" width="100%" />
+
+---
 
 ### April 11, 2020
 It was a sunny, windy, but mostly warm day today. Leaves were dry enough that I was 
