@@ -1,8 +1,16 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-15
+Modified: 2020-04-20
 Category: Logs
 Authors: Ben Hanna
+
+### April 20, 2020
+Of the 50 Elephant Garlic corms that we planted in the fall, it looks like the first 
+one has emerged.
+
+<img src="/images/farm-log-2020-04-20-00.jpg" width="100%" />
+
+---
 
 ### April 15, 2020
 Cold frame reached a high of 81 degrees today without being vented. We put a heavy duty tarp over the 
