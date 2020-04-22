@@ -1,10 +1,20 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-20
+Modified: 2020-04-21
 Category: Logs
 Authors: Ben Hanna
 
+### April 21, 2020
+Started a tray of Blauer Speck Kohlrabi, Superschmelz Kohlrabi, Tronchuda Kale, and Turkish Rocket.
+
+---
+
 ### April 20, 2020
+Set trays of tomatoes, kale, and chestnut trees outside today to begin hardening off.
+
+---
+
+### April 19, 2020
 Of the 50 Elephant Garlic corms that we planted in the fall, it looks like the first 
 one has emerged.
 
