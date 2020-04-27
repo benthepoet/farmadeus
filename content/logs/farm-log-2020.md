@@ -19,6 +19,35 @@ I don't the deer will make me pay dearly for it.
 
 ---
 
+### April 25, 2020
+We discovered a few parsnips from our failed crop last year that wintered over. Rather small but still delicious. 
+Will see if we can get them all the way to seed.
+
+<img src="/images/farm-log-2020-04-25-00.jpg" width="100%" />
+
+---
+
+### April 24, 2020
+Got most of the seedlings outdoors today. Tomatoes are getting big and starting to fall over. Been transplanting them 
+into new containers as needed.
+
+<img src="/images/farm-log-2020-04-24-00.jpg" width="100%" />
+
+Dunstan Chestnut seedlings are leafing out more.
+
+<img src="/images/farm-log-2020-04-24-01.jpg" width="100%" />
+
+The Red Russian Kale and Scarlet Kale seedlings have all emerged. Early White Vienna Kohlrabi is taking a while to sprout.
+
+<img src="/images/farm-log-2020-04-24-02.jpg" width="100%" />
+
+Harvested our first Egyptian Walking Onion of the season. This was from a plant that had divided into three. Cut off the bottom 
+and replanted in another bed.
+
+<img src="/images/farm-log-2020-04-24-03.jpg" width="100%" />
+
+---
+
 ### April 21, 2020
 Started a tray of Blauer Speck Kohlrabi, Superschmelz Kohlrabi, Tronchuda Kale, and Turkish Rocket.
 
