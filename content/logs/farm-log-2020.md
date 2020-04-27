@@ -1,8 +1,23 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-21
+Modified: 2020-04-27
 Category: Logs
 Authors: Ben Hanna
+
+### April 27, 2020
+So it looks like I was wrong. The St. John's Wort that I planted never came up, it was the Skirret 
+that came up. This actually makes me happy as I was really looking to getting Skirret started as a 
+food crop this year. Below is a picture of what the Skirret seedlings look like.
+
+<img src="/images/farm-log-2020-04-27-00.jpg" widht="100%" />
+
+---
+
+### April 26, 2020
+Did some pruning on cherry, pear, and apple trees today. Put a large cage around the Alderman Plum, if 
+I don't the deer will make me pay dearly for it.
+
+---
 
 ### April 21, 2020
 Started a tray of Blauer Speck Kohlrabi, Superschmelz Kohlrabi, Tronchuda Kale, and Turkish Rocket.
