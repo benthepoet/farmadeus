@@ -9,7 +9,7 @@ So it looks like I was wrong. The St. John's Wort that I planted never came up, 
 that came up. This actually makes me happy as I was really looking to getting Skirret started as a 
 food crop this year. Below is a picture of what the Skirret seedlings look like.
 
-<img src="/images/farm-log-2020-04-27-00.jpg" widht="100%" />
+<img src="/images/farm-log-2020-04-27-00.jpg" width="100%" />
 
 ---
 
