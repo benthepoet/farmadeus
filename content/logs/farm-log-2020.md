@@ -1,8 +1,15 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-27
+Modified: 2020-04-28
 Category: Logs
 Authors: Ben Hanna
+
+### April 28, 2020
+Was a fairly sunny day today, managed to get all the plants outside again. Transplanted 3 Tadorna Leek 
+seedlings into a bed. We are expecting some freezing temperatures next week so I'll be keeping them covered 
+with a humidity dome for a while.
+
+---
 
 ### April 27, 2020
 So it looks like I was wrong. The St. John's Wort that I planted never came up, it was the Skirret 
@@ -10,6 +17,8 @@ that came up. This actually makes me happy as I was really looking to getting Sk
 food crop this year. Below is a picture of what the Skirret seedlings look like.
 
 <img src="/images/farm-log-2020-04-27-00.jpg" width="100%" />
+
+Started 55 Siberan Peashrub seeds in a small tray.
 
 ---
 
