@@ -4,6 +4,11 @@ Modified: 2020-04-28
 Category: Logs
 Authors: Ben Hanna
 
+### April 29, 2020
+Moved 4 Skirret seedlings from the tray into cups to allow for continued root development.
+
+---
+
 ### April 28, 2020
 Was a fairly sunny day today, managed to get all the plants outside again. Transplanted 3 Tadorna Leek 
 seedlings into a bed. We are expecting some freezing temperatures next week so I'll be keeping them covered 
