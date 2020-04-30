@@ -1,11 +1,24 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-28
+Modified: 2020-04-29
 Category: Logs
 Authors: Ben Hanna
 
 ### April 29, 2020
 Moved 4 Skirret seedlings from the tray into cups to allow for continued root development.
+
+The Methley Plum cuttings haven't been looking so good. They wilted and have many spots of fuzzy mold. 
+Checked the bottoms of the cuttings and it doesn't appear that any have formed roots or even callused. The 
+experiment is likely a complete failure. There's a couple things I'll try differently next time. First I believe my soil 
+medium was likely too moist, which didn't really the encourage the cuttings to root and instead made them focus on leafing 
+out too much. I also probably should've used some sort of bottom heat to encourage callusing. The next cuttings I try 
+rooting will have the top ends sealed with wax to prevent drying out and then bottom ends will be packed in moist peat moss with 
+bottom heat applied. Using the bag over the container just seems like it causes the cuttings to leaf out and grow mold more than 
+anything.
+
+My Reliance Grape cutting is currently leafing out and has a little mold on one of the leaves. I've made some slits in the bag 
+to reduce humidity a little bit. I also moved the cutting to the rear of the top of the refrigerator in an effort to try and give 
+it more heat.
 
 ---
 
