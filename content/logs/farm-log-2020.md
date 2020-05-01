@@ -1,8 +1,19 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-04-29
+Modified: 2020-05-01
 Category: Logs
 Authors: Ben Hanna
+
+### May 1, 2020
+It was a high of 74 degrees outside today. Got all the plants outside in direct sunlight with a light 
+wind. Patches where we direct seeded kale and peas are all sprouting now. The transplanted Tadorna Leeks seem 
+to be doing alright. Will plan on transplanting the rest this weekend.
+
+Asparagus spears are beginning to poke through in both the garden and the food forest. 
+
+<img src="/images/farm-log-2020-05-01-00.jpg" width="100%" />
+
+---
 
 ### April 29, 2020
 Moved 4 Skirret seedlings from the tray into cups to allow for continued root development.
