@@ -1,8 +1,40 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-01
+Modified: 2020-05-03
 Category: Logs
 Authors: Ben Hanna
+
+### May 3, 2020
+Built another leaf bin, this time down by our basement. Transplanted 3 Antonovka Apple seedlings into a 
+large coffee can filled with compost, chicken manure, and charcoal. Direct seeded Blauer Speck Kohlrabi 
+and Superschmelz Kohlrabi throughout the various garden beds. Left the tray of Skirret seedlings outside last 
+night and some animal (a bird I think) pulled out a couple of the seedlings.
+
+---
+
+### May 2, 2020
+Transplanted the Skirret seedlings into cups.
+
+<img src="/images/farm-log-2020-05-02-00.jpg" width="100%" />
+
+ECOS Pear seeds that were planted in the garden have started emerging.
+
+<img src="/images/farm-log-2020-05-02-01.jpg" width="100%" />
+
+The various apple seeds are emerging also.
+
+<img src="/images/farm-log-2020-05-02-02.jpg" width="100%" />
+
+Green Beauty Peas are pushing up through the mulch. This will be the first year that I've grown peas with a 
+heavy layer of mulch still on the bed. 
+
+<img src="/images/farm-log-2020-05-02-03.jpg" width="100%" />
+
+Constructed a leaf bin today. We'll let this set for probably a year, after which we should have some good leaf mold.
+
+<img src="/images/farm-log-2020-05-02-04.jpg" width="100%" />
+
+---
 
 ### May 1, 2020
 It was a high of 74 degrees outside today. Got all the plants outside in direct sunlight with a light 
