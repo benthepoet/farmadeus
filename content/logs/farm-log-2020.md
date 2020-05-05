@@ -6,7 +6,7 @@ Authors: Ben Hanna
 
 ### May 4, 2020
 Tadorna Leeks have adapted well and are surviving overnight freezing temperatures. Blauer Speck Kohlrabi and 
-Superschmelz Kohlrabi are beginning to develop their first true leaves. Beets, carrots, kale, and mustard greens 
+Superschmelz Kohlrabi are beginning to develop their first true leaves. Beets, carrots, kale, lettuce, and mustard greens 
 have all sprouted now in the coldframe.
 
 The Reliance Grape cutting is showing signs of callusing so I've pulled it from the growing container and placed it 
