@@ -1,8 +1,18 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-03
+Modified: 2020-05-05
 Category: Logs
 Authors: Ben Hanna
+
+### May 4, 2020
+Tadorna Leeks have adapted well and are surviving overnight freezing temperatures. Blauer Speck Kohlrabi and 
+Superschmelz Kohlrabi are beginning to develop their first true leaves. Beets, carrots, kale, and mustard greens 
+have all sprouted now in the coldframe.
+
+The Reliance Grape cutting is showing signs of callusing so I've pulled it from the growing container and placed it 
+in a jar of water to see if it'll develop roots now.
+
+---
 
 ### May 3, 2020
 Built another leaf bin, this time down by our basement. Transplanted 3 Antonovka Apple seedlings into a 
