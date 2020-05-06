@@ -1,8 +1,17 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-05
+Modified: 2020-05-06
 Category: Logs
 Authors: Ben Hanna
+
+### May 6, 2020
+The direct-seeded kale that we had appears to have mostly been killed by a frost last night. Tadorna Leeks appear to 
+be okay. The lettuce in the coldframe is beginning to develop its first true leaves. Planted a Tolman Sweet Apple tree 
+today that I ordered from Stark Bros. It went in place of the Methley Plum that was debarked. The Methley Plum had some 
+sprouts below the soil line but I'm unsure if they're from the rootstock or the graft so I replanted it to see what we 
+get.
+
+---
 
 ### May 5, 2020
 Tadorna Leeks have adapted well and are surviving overnight freezing temperatures. Blauer Speck Kohlrabi and 
