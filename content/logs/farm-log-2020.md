@@ -4,13 +4,16 @@ Modified: 2020-05-05
 Category: Logs
 Authors: Ben Hanna
 
-### May 4, 2020
+### May 5, 2020
 Tadorna Leeks have adapted well and are surviving overnight freezing temperatures. Blauer Speck Kohlrabi and 
 Superschmelz Kohlrabi are beginning to develop their first true leaves. Beets, carrots, kale, lettuce, and mustard greens 
 have all sprouted now in the coldframe.
 
 The Reliance Grape cutting is showing signs of callusing so I've pulled it from the growing container and placed it 
 in a jar of water to see if it'll develop roots now.
+
+Started a tray with Cocozelle Zucchinni, Table Queen Acorn Squash, Tokyo Blue Squash, Nasturtiums, National Pickling 
+Cucumber, Black Seeded Simpson Lettuce, and Big Boston Lettuce.
 
 ---
 
