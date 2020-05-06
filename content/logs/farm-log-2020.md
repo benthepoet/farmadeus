@@ -15,6 +15,9 @@ in a jar of water to see if it'll develop roots now.
 Started a tray with Cocozelle Zucchinni, Table Queen Acorn Squash, Tokyo Blue Squash, Nasturtiums, National Pickling 
 Cucumber, Black Seeded Simpson Lettuce, and Big Boston Lettuce.
 
+Checked on the seeds in the refrigerator. Many are starting to get mold on them. Pulled the Arctic Beauty Kiwi (*Actinidia kolomikta*) 
+into a small tray to see if they'll begin sprouting.
+
 ---
 
 ### May 3, 2020
