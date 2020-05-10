@@ -1,8 +1,18 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-07
+Modified: 2020-05-09
 Category: Logs
 Authors: Ben Hanna
+
+### May 9, 2020
+Started Winter Savory, Stinging Nettle, and Marigold seeds in trays.
+
+---
+
+### May 8, 2020
+Divided the 4 Siberian Crabapple seedlings into separate containers. 
+
+---
 
 ### May 7, 2020
 Received 10 Hybrid Willow tree cuttings in the mail today. Some were already rooting all along the stem. Placed 
