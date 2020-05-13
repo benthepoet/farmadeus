@@ -1,8 +1,20 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-09
+Modified: 2020-05-12
 Category: Logs
 Authors: Ben Hanna
+
+### May 12, 2020
+The Reliance Grape cutting appears to be forming roots now. Hybrid Willow cuttings are 
+rooting quite aggressively now.
+
+---
+
+### May 11, 2020
+Received 12 Giant Miscanthus rhizomes in the mail today. Placed in some potting 
+mix to begin rooting.
+
+---
 
 ### May 9, 2020
 Started Winter Savory, Stinging Nettle, and Marigold seeds in trays.
