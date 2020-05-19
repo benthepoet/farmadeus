@@ -1,8 +1,36 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-12
+Modified: 2020-05-19
 Category: Logs
 Authors: Ben Hanna
+
+### May 19, 2020
+Transplanted seedlings have all held rather well and I've only seen pest damage, which I attribute to slugs, on one 
+of the Scarlet Kale seedlings.
+
+---
+
+### May 18, 2020
+Received 8 Eastern Prickly Pear Cactus pads in the mail today. Transplanted some kale, kohlrabi, and a tomato plant 
+into the food forest as an experiment to see how they'll do this year.
+
+Moved Hybrid Willow cuttings into a container with soil to develop the roots more before transplanting into the food forest. 
+
+---
+
+### May 17, 2020
+Felled and started peeling Quaking Aspens logs to use for constructing our new chicken run. Direct seeded some winter 
+squash in various places outside the fenced garden.
+
+---
+
+### May 16, 2020
+Constructed new welded wire cages for the trees out in the food forest. Transplanted kale, kohlrabi, skirret, 
+and tomatoes into the garden. It was a warm day and heavy rain is expected for the next couple days.
+
+Transplanted Hyssop next to the Somerset Grape and Catawba Grape.
+
+---
 
 ### May 12, 2020
 The Reliance Grape cutting appears to be forming roots now. Hybrid Willow cuttings are 
