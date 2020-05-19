@@ -6,7 +6,7 @@ Authors: Ben Hanna
 
 ### May 19, 2020
 Transplanted seedlings have all held rather well and I've only seen pest damage, which I attribute to slugs, on one 
-of the Scarlet Kale seedlings.
+of the Scarlet Kale seedlings. Initial plantings of carrots and parsnips appear to all be coming up now.
 
 ---
 
