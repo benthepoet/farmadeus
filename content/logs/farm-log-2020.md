@@ -1,12 +1,14 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-19
+Modified: 2020-05-20
 Category: Logs
 Authors: Ben Hanna
 
 ### May 19, 2020
 Transplanted seedlings have all held rather well and I've only seen pest damage, which I attribute to slugs, on one 
 of the Scarlet Kale seedlings. Initial plantings of carrots and parsnips appear to all be coming up now.
+
+Started 4 pots of Golden Honeydew Melon with 3 seeds in each container.
 
 ---
 
