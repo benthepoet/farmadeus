@@ -1,8 +1,35 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-20
+Modified: 2020-05-26
 Category: Logs
 Authors: Ben Hanna
+
+### May 26, 2020
+The temperature reached a high of 92 degrees today, as a result some of the more recent transplants were damaged 
+by the extreme spring heat. Thankfully, we thunderstorms rolled in later today.
+
+Most of the transplants appear to be doing well. Slugs are likely the most common source of pest damage at the moment. 
+They've only completely defoliated a Scarlet Kale seedling and a Superschmelz Kohlrabi seedling.
+
+What I thought were Beach Plums that had sprouted may actually be Manchurian Apricots, will have to wait a couple years to find out. The 
+Goji berries may actually get well established this year, two of the plants already have about 3 - 4 inches of grow so I put cages around 
+to prevent any deer or rabbit damage.
+
+We've been harvesting asparagus for about the past 5 days. I'd say we probably have at least 1 pound at the moment.
+
+The coldframe is exceeding expectations. Mustard greens, kale, beets, lettuce, and carrots are all looking quite healthy.
+
+Rabbits appear to be causing more damage in the food forest this year. They've dug slightly under some of the chicken wire cages to either 
+get at tree seedlings or onions that we've planted. They've also completely destroyed one of our Eastern Prickly Pear cactuses. If rabbit 
+pressure holds up, hunting may be an option in the fall.
+
+Food forest trees are looking great, even the apples have decent foliage so far. The Tolman Sweet Apple is starting to push out buds. All 
+the trees that were debarked by voles (save for the Methley Plum) still look relatively good though the Toka Plum doesn't appear as vigorous 
+as last year but it's still early in the season. The Montmorency Cherry up by the kitchen garden doesn't seem to be flowering as heavy this year.
+
+The grape vines are now fully leafed out.
+
+---
 
 ### May 19, 2020
 Transplanted seedlings have all held rather well and I've only seen pest damage, which I attribute to slugs, on one 
