@@ -1,8 +1,34 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-26
+Modified: 2020-05-31
 Category: Logs
 Authors: Ben Hanna
+
+### May 31, 2020
+Last night was our last frost of the season. We attempted to run a sprinkler overnight which may have helped or not as ice 
+just wound up building up on the plants. In any case it was a heavy frost, I was expecting us to lose our potatoes but miraculously 
+they survived under the layer of ice. 
+
+<img src="/images/farm-log-2020-05-31-00.jpg" width="100%" />
+
+All but two of our tomato plants were killed even though many were covered with five gallon 
+buckets. Many of the beans that we had sprouting were killed back. A handful of kale and kohlrabi plants may not make it. Most the growth 
+that was established on the grape vines has been killed back.
+
+None of the fruit trees appear to have suffered any damage. Though the shoots of the Buartblack Walnut seedlings that just started coming out appear 
+to be burned.
+
+Reseeded Rattlesnake Pole Beans and Barnside Runner Beans. Replaced a few tomatoes in the kitchen garden and in the food forest. Planted out 
+several Table Queen Acorn Squash and Tokyo Blue Squash seedlings. Planted out National Pickling Cucumber seedlings.
+
+---
+
+### May 30, 2020
+Mowed the food forest for the first time this year. Built the first part of the frame for our new chicken run.
+
+<img src="/images/farm-log-2020-05-30-00.jpg" width="100%" />
+
+---
 
 ### May 26, 2020
 The temperature reached a high of 92 degrees today, as a result some of the more recent transplants were damaged 
