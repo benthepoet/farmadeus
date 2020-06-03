@@ -1,8 +1,25 @@
 Title: Farm Log 2020
 Date: 2020-01-11
-Modified: 2020-05-31
+Modified: 2020-06-03
 Category: Logs
 Authors: Ben Hanna
+
+### June 3, 2020
+Temperature is in the mid 80s today. Spot watered any plants that were looking wilted. Am intentionally trying not to water as 
+much as possible in order to reduce leeching in the soil.
+
+---
+
+### June 2, 2020
+Today the temperature reached a high of 94. Had to cover some of the new transplants during the middle of the day. Young seedlings 
+don't handle these unusually high temperatures well.
+
+---
+
+### June 1, 2020
+Transplanted more tomatoes, kale, and squash. Also planted out 3 sweet potato slips. Started a half tray with lettuce and kohlrabi.
+
+---
 
 ### May 31, 2020
 Last night was our last frost of the season. We attempted to run a sprinkler overnight which may have helped or not as ice 
