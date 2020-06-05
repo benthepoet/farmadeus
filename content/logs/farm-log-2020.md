@@ -4,6 +4,17 @@ Modified: 2020-06-03
 Category: Logs
 Authors: Ben Hanna
 
+### June 4, 2020
+Another 94 degree day. Ran the sprinkler for about 10 - 15 minutes to help the plants out a little bit. Replaced a Scarlet Kale 
+that looks like it had a burnt stem. Kept newly transplanted Tronchuda Kale seedlings covered for most of the day as they're not 
+hardy enough to withstand the intense heat and sunlight yet. The Hawthorne tree in the food forest is looking healthy this year. It's 
+has more blooms than I've ever seen on it and the foliage has little pest damage so far.
+
+Pulled the American Persimmon and American Dunbar's Plum seeds out of the refrigerator a couple days ago. Planted 1 plum seed in that 
+has begun sprouting.
+
+---
+
 ### June 3, 2020
 Temperature is in the mid 80s today. Spot watered any plants that were looking wilted. Am intentionally trying not to water as 
 much as possible in order to reduce leeching in the soil.
@@ -355,7 +366,7 @@ planted our excess Green Beauty Pea and Admiral Soup Pea seeds in this bed.
 <img src="/images/farm-log-2020-04-11-03.jpg" width="100%" />
 
 This is our strongest Sea Kale seedling so far. I'm interested to see how well it does this 
-year. I recently purchased more Sea Kale seeds on eBay from seller in Canada.
+year. I recently purchased more Sea Kale seeds on eBay from a seller in Canada.
 
 <img src="/images/farm-log-2020-04-11-04.jpg" width="100%" />
 
